@@ -1,2 +1,1 @@
-# Avamichelle.github.io
-Introduction to Metaverse Domains
+# Introduction to Metaverse Domains
